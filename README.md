@@ -1,1 +1,1 @@
-# Welcome
+# Welcome to party of non-programmers
